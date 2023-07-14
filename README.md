@@ -11,8 +11,6 @@ Page created for the Secretary of Labor and Social Welfare, to comply with stand
 
 [![Screenshot-103.png](https://i.postimg.cc/s2JXTqP7/Screenshot-103.png)](https://postimg.cc/wt7gvWGj)
 
-[![Screenshot-104.png](https://i.postimg.cc/qvsM7S5S/Screenshot-104.png)](https://postimg.cc/YvSwnnkz)
-
 [![Screenshot-105.png](https://i.postimg.cc/VsJtNsBh/Screenshot-105.png)](https://postimg.cc/9zj08hkP)
 
 [![Screenshot-107.png](https://i.postimg.cc/26MVWvFK/Screenshot-107.png)](https://postimg.cc/hz8DWXYL)
@@ -24,8 +22,6 @@ Page created for the Secretary of Labor and Social Welfare, to comply with stand
 [![Screenshot-110.png](https://i.postimg.cc/tJG9yzzp/Screenshot-110.png)](https://postimg.cc/dk6bjrXx)
 
 [![Screenshot-112.png](https://i.postimg.cc/g0fWqKQ8/Screenshot-112.png)](https://postimg.cc/jWQmRysS)
-
-[![Screenshot-113.png](https://i.postimg.cc/HsWfMKnF/Screenshot-113.png)](https://postimg.cc/3W6S5tgZ)
 
 [![Screenshot-114.png](https://i.postimg.cc/QNff2MNn/Screenshot-114.png)](https://postimg.cc/WtJmrTkM)
 
